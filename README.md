@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on humanities 
 - 📫 How to reach me
   
-- 😄 Below are my core beliefs to help stop the war in Isreal/Iran. If anyone wants to jump on board, starting medical facilities in each town doing the three bullet points below.
+- 😄 Below are my core beliefs to help stop the war in Isreal/Iran. If anyone wants to jump on board by starting medical facilities in each town doing the three bullet points below.
 
 1) Use an elctrostatic memory board with a specific liquid compound (pouring over board) to take eye to eye psychological tests testing for suffocation/crying and any other impact on the human mind (or another mind reading methodology). Use readers to also identify areas on the left and right halves of the mind that are not sharing across the center. Create business settings that accomplish this globally for legal/medical purposes. - Tests backed up with uniqueness associated with negative impact by recordings (social ripple). Personality shift predicted; vulgar to playful. - achievable
        
